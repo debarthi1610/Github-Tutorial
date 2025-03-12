@@ -1,3 +1,3 @@
 # Write Your Crush Name
-> Pavan - Marin Kitagawa \n
+> Pavan - Marin Kitagawa 
 > Debarthi - KL Rahul
